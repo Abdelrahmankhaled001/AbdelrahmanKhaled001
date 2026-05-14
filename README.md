@@ -32,7 +32,7 @@ I am a **Hybrid Professional** with 10 years of experience in **Accounting Manag
 
 ### 📫 Connect with me:
 - **Email:** abdelrahmankhaled001@gmail.com
-- **LinkedIn:** [https://www.linkedin.com/in/abdelrahman-khaled-7706b9156/]
+- **LinkedIn:** [https://www.linkedin.com/in/abdelrahman-khaled-oo1/]
 - **Location:** Obour City, Cairo, Egypt
 
 ---
